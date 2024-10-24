@@ -2,8 +2,8 @@
 - 👀 I’m interested in education & counseling.
 - 🌱 I’m currently learning in high school.
 - 💞️ I’m looking to collaborate on anything related on education.
-- 📫 How to reach me through e-mail.
-- 😄 Pronouns: she/her
+- 📫 Reach me through nailarahmarlinifebriyanti@gmail.com
+- 😄 Pronouns: she/her 
 - ⚡ Fun fact: I enjoy reading and appreciating artworks.
 
 <!---
